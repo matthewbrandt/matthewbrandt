@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-My name is Matthew and I'm part of the Data Team at [NZZ](https://www.nzz.ch "Neue Zürcher Zeitung").
+My name is Matthew but most people call me Matty.
 
 I fall into a self-titled category called the "Full-Stack Analyst" and have experience across a range of topics:
 - Requirements Engineering & Business Analysis
