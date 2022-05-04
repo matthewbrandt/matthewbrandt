@@ -17,6 +17,6 @@ In general, I have high tech-literacy and a service mindset. I will do anything 
 
 You can find more about me on my personal website [mattytwoshoes](http://mattytwo.shoes "mattytwo.shoes - my personal site")
 
-Come watch me livestream regulary on [Twitch](http://twitch.tv/matty_twoshoes "my Twitch channel") twice a week!
+Come watch me livestream on [Twitch](http://twitch.tv/matty_twoshoes "my Twitch channel") twice a week!
 
 ⚡ Fun fact: I have only lived in countries with 🟥red and ⬜white flags. Can you guess which ones?
